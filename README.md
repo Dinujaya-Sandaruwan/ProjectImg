@@ -2,7 +2,8 @@
 ![image](https://github.com/Dinujaya-Sandaruwan/ProjectImg/assets/88492493/6202a61f-20c4-4401-9fc3-dc9ee6956e20)
 ![image](https://github.com/Dinujaya-Sandaruwan/ProjectImg/assets/88492493/f5f7bfed-117a-4ce1-a873-7a7b4fe8bf80)
 
-![CoverTop](https://github.com/Dinujaya-Sandaruwan/ProjectImg/assets/88492493/3accda55-c0c9-4b20-9ace-5fe8c57cc3da)
+
+![CoverTop](https://github.com/Dinujaya-Sandaruwan/ProjectImg/assets/88492493/159d2d23-14c6-4930-a27e-ce5d27385d01)
 
 ![image](https://github.com/Dinujaya-Sandaruwan/ProjectImg/assets/88492493/30d7d48b-0888-423d-a67f-b190418139aa)
 
